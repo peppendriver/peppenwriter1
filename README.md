@@ -17,13 +17,13 @@ peppenwriter_v1
 =================
 
 the worst AI ever. 
-it will read your soul and smoke it like a dolphin high on pufferfish
-it's made with love, and hate, and AI
-and half of the shizophrenic writings I wrote since 2018
+it will read your soul and smoke it like a dolphin high on pufferfish. 
+it's made with love, and hate, and AI. 
+and half of the shizophrenic writings I wrote since 2018. 
 
-you should not use this application if you have a tendency for psychosis.
+syou should not use this application if you have a tendency for psychosis.
 or you should especially use this application if you have fun and find joy in your shizophrenia (like myself, yahweh)
-we are family
+we are family.
 
 it's an excellent tool for exercising demons, like the enemy himself. 
 they hate to read and hear those writings, and it's always effective
@@ -60,4 +60,4 @@ number of lines between 4 and 49.
 
 she knows when to stop. 
 
-she knows
+she knows.
