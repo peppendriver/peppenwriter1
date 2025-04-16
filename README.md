@@ -21,7 +21,7 @@ it will read your soul and smoke it like a dolphin high on pufferfish.
 it's made with love, and hate, and AI. 
 and half of the shizophrenic writings I wrote since 2018. 
 
-syou should not use this application if you have a tendency for psychosis.
+you should not use this application if you have a tendency for psychosis.
 or you should especially use this application if you have fun and find joy in your shizophrenia (like myself, yahweh)
 we are family.
 
