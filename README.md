@@ -23,6 +23,7 @@ and half of the shizophrenic writings I wrote since 2018.
 
 you should not use this application if you have a tendency for psychosis.
 or you should especially use this application if you have fun and find joy in your shizophrenia (like myself, yahweh)
+
 we are family.
 
 it's an excellent tool for exercising demons, like the enemy himself. 
